@@ -5,4 +5,3 @@ things i like to do:
 * drinken
 * leven
 * gewoon genieten
-* 
