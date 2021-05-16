@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+things i like to do:
+* door de bergen rijden
+* eten
+* varen
+* drinken
+* leven
+* gewoon genieten
+* 
